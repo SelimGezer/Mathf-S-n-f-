@@ -1,4 +1,4 @@
-Temel Eşitlikler Dersi İçin:
+Temel Eşitlikler İçin:
 https://www.youtube.com/watch?v=lBt2TBgpbSU
 
 Trigonometrik Eşitlikler İçin:
